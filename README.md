@@ -5,9 +5,9 @@
 ᅠᅠ  ᪶︵ isfj ⥂ 9w1 sx9so/sp4sp6 . ♡゙ melancholic-phlegmatic .. anxious-involved 。
 
 ### ⎯ᅠ _i always go by my social under the nickname in pony town. u may see me with_ : 
-O1. `telegram — bb1soul …` ៸៸ ᅠᅠᅠ
-ᅠO2. `discord — sleeplessfrvr` ៸៸ᅠᅠ
-ᅠO3. `github, ofc!`
+O1. `telegram — bb1soul …` ៸៸ ᅠᅠᅠᅠ
+ᅠᅠO2. `discord — sleeplessfrvr` ៸៸ᅠᅠᅠ
+ᅠᅠO3. `github, ofc!`
 
 ## 𓂃 impy ᪶ :
 _iwc, especially if u're an adult .. i may be shy and quiet with new friends or people unless i find them cool/they're in the same fandom as me . i rlly not that closed-off with my close friendos- btw i don't mind making new friends! .. i still have some troubles speaking English, so srry if i'll make some silly mistakes T–T_
